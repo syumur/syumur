@@ -8,7 +8,7 @@
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{Khaki}˖⏖ⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
-ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤ ![1000071509](https://github.com/user-attachments/assets/93f90f36-4f29-4fc8-9399-03b98974a5bd)
+ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤ <img width="508" height="30" alt="608021174-93f90f36-4f29-4fc8-9399-03b98974a5bd" src="https://github.com/user-attachments/assets/4e27182b-ffa3-4a93-9c95-d64f97941e1e" />
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc236d0e-fc10-465b-842e-f6db62cdaf17" />!<img width="99" height="56" alt="uke1" src="https://github.com/user-attachments/assets/6370f062-edbb-4f3e-99b3-2fa035954b5f" /><img src="https://popteamepic.carrd.co/assets/images/gallery61/d4cfb3bd.png?v10408301085951"><img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/ec862055-4309-4d2c-a69a-85a07f58bfa2" /><img src="https://i.ibb.co/ZR4mxk10/pinkandgreen.webp"><img src="https://i.postimg.cc/xd8bXdjL/gc4o9ym.png"><img width="99" height="56" alt="seme1" src="https://github.com/user-attachments/assets/6236248b-98c4-4249-999b-b7ca9b5fa40d" /><img src="https://meowbark2000.neocities.org/graphics/yaoipilled.png">
 <img width="99" height="56" alt="1000070762" src="https://github.com/user-attachments/assets/98925a84-9c85-4b92-804e-2983aea6a4c5" /><img width="99" height="56" alt="1000070763" src="https://github.com/user-attachments/assets/bdaf48b2-7a78-4b69-ac84-609d5a1ecc0c" /><img width="99" height="56" alt="1000070753" src="https://github.com/user-attachments/assets/29d15f22-248f-437a-9945-e38bca9a6914" /><img src="https://meowbark4000.neocities.org/buttons/buttons2/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif"><img width="99" height="56" alt="raii" src="https://github.com/user-attachments/assets/f0f3d2d6-7e05-446b-bce8-74c3da364545" /><img width="99" height="56" alt="1000070769" src="https://github.com/user-attachments/assets/6566910b-c0f3-424f-b2c5-908f16d19f4b" /><img width="99" height="56" alt="tumblr_0bdaaf0537eaf3a08a9322f943243707_26123242_100" src="https://github.com/user-attachments/assets/931c7872-4c45-40dd-9dd0-28e21826a237" /><img width="101" height="57" alt="600460176-d4c03378-19c0-410e-88da-a06627a6ecba" src="https://github.com/user-attachments/assets/491f46f8-4e91-4047-ab03-dec947295573" />
@@ -27,8 +27,7 @@
 <img src="https://files.catbox.moe/g8rtcv.gif">
 <img width="99" height="56" alt="1000070683" src="https://github.com/user-attachments/assets/7e4fa546-1ee6-469b-9137-07071bf8938d" />
 
-
-ㅤㅤ ㅤ ㅤ ㅤㅤㅤㅤ ㅤ ㅤ ![1000071509](https://github.com/user-attachments/assets/93f90f36-4f29-4fc8-9399-03b98974a5bd)
+ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤ <img width="508" height="30" alt="608021174-93f90f36-4f29-4fc8-9399-03b98974a5bd" src="https://github.com/user-attachments/assets/4e27182b-ffa3-4a93-9c95-d64f97941e1e" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img width="20" height="20" alt="121" src="https://github.com/user-attachments/assets/ff4f7a9b-33cb-4896-af1a-3034d95f4ed8" />![](https://komarev.com/ghpvc/?username=s4vko&label=LOVE✨Yukimi-chan.&style=plastic&abbreviated&color=FF69B4)
 
