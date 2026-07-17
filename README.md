@@ -7,7 +7,7 @@
 ㅤㅤㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤ<img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/brpPRFYy/IMG_3608.webp" style="" title=""><img alt="" referrerpolicy="same-origin" src="https://files.catbox.moe/pa5tad.gif" style="" title=""><img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/k4x9KdmY/IMG_3609.webp" style="" title="">
 
 
-# ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{PaleTurquoise}˖⏖ⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
+# ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{PaleTurquoise}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤㅤ  <img width="490" height="15" alt="1000072335" src="https://github.com/user-attachments/assets/bcf3cc6a-0d3b-407a-9288-4e935a8acec6" />
 
