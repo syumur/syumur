@@ -1,12 +1,13 @@
-ㅤ<img width="740" height="517" alt="1000072212" src="https://github.com/user-attachments/assets/339207c8-8c42-46fd-b05a-f0b3a9d0082a" />
+ㅤㅤ<img width="850" height="400" alt="mitsugi-paradise (2)" src="https://github.com/user-attachments/assets/f195cfbc-6175-40b7-b8dd-7f4d31d616c8" />
 
 
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ <img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" /><img width="80" height="20" alt="image" src="https://github.com/user-attachments/assets/62a75293-e2b1-4442-ac2b-89c7e45597dd" /><img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" />
 
-ㅤㅤㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤ<img alt="" referrerpolicy="same-origin" src="https://files.catbox.moe/x1m5fm.gif" style="" title="">
+ㅤㅤㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤㅤ ㅤ ㅤ<img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/brpPRFYy/IMG_3608.webp" style="" title=""><img alt="" referrerpolicy="same-origin" src="https://files.catbox.moe/pa5tad.gif" style="" title=""><img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/k4x9KdmY/IMG_3609.webp" style="" title="">
 
-# ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{Khaki}˖⏖ⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
+
+# ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{PaleTurquoise}˖⏖ⲇⲛⲓ : ϭⲁsⲓⲥ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤㅤ  <img width="490" height="15" alt="1000072335" src="https://github.com/user-attachments/assets/bcf3cc6a-0d3b-407a-9288-4e935a8acec6" />
 
