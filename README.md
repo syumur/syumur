@@ -31,7 +31,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="15" alt="tumblr_2bd1565e375d6cb63f390a7b846bdc4b_b1415460_400" src="https://github.com/user-attachments/assets/ce30a5fe-136c-4b0f-aa83-773e2e1e27cf" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img width="20" height="20" alt="121" src="https://github.com/user-attachments/assets/ff4f7a9b-33cb-4896-af1a-3034d95f4ed8" />![](https://komarev.com/ghpvc/?username=s4vko&label=LOVE✨Yukimi-chan.&style=plastic&abbreviated&color=FF69B4)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img width="20" height="20" alt="121" src="https://github.com/user-attachments/assets/ff4f7a9b-33cb-4896-af1a-3034d95f4ed8" />![](https://komarev.com/ghpvc/?username=syunur&label=BAKAᶻ+𝗓+𐰁&style=for-the-badge&abbreviated&color=FF69B4)
 
 
 <!--
