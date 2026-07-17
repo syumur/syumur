@@ -1,4 +1,4 @@
-ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤ<img width="110" height="66" alt="1000072802" src="https://github.com/user-attachments/assets/0157bfb9-569e-4a2b-9f2f-859da918735f" />ㅤ<img width="110" height="66" alt="1000072801" src="https://github.com/user-attachments/assets/a4a3d94c-9995-4f1a-aa1b-dbb7bd545976" />ㅤ<img width="110" height="66" alt="1000072803" src="https://github.com/user-attachments/assets/1ec3cb4b-6341-4170-90af-e9c04cd8737a" />
+<img width="20" height="20" alt="IMG_3950" src="https://github.com/user-attachments/assets/f4b363b7-5011-4ee7-bd8e-1d684de39777" /><img width="20" height="20" alt="292306-CC-AC53-4-D4-C-B675-A5007-F9-C5613" src="https://github.com/user-attachments/assets/68416425-026a-417b-81ab-b2652ed8a90d" />ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤ<img width="110" height="66" alt="1000072802" src="https://github.com/user-attachments/assets/0157bfb9-569e-4a2b-9f2f-859da918735f" />ㅤ<img width="110" height="66" alt="1000072801" src="https://github.com/user-attachments/assets/a4a3d94c-9995-4f1a-aa1b-dbb7bd545976" />ㅤ<img width="110" height="66" alt="1000072803" src="https://github.com/user-attachments/assets/1ec3cb4b-6341-4170-90af-e9c04cd8737a" />
 
 ㅤㅤ<img width="800" height="7" alt="tumblr_11d114c38b5312a470cb1be2b9058415_d71d613f_400" src="https://github.com/user-attachments/assets/f4faa4bb-d728-4350-b8c2-1794ac7ecb66" />
 
@@ -6,7 +6,7 @@
 
 ㅤㅤ<img width="800" height="7" alt="tumblr_05ac64d1ed438a2e3ca073780f9563b5_18a88103_2048" src="https://github.com/user-attachments/assets/04ed5339-b5e8-42cf-b83d-5559ae5018f9" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img width="20" height="20" alt="121" src="https://github.com/user-attachments/assets/ff4f7a9b-33cb-4896-af1a-3034d95f4ed8" />![](https://komarev.com/ghpvc/?username=syunur&label=BAKAᶻ+𝗓+𐰁&style=for-the-badge&abbreviated&color=483D8B)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img width="29" height="29" alt="IMG_3950" src="https://github.com/user-attachments/assets/eda6be56-8289-4159-ae14-7314c4a49f8a" />![](https://komarev.com/ghpvc/?username=syunur&label=BAKAᶻ+𝗓+𐰁&style=for-the-badge&abbreviated&color=483D8B)
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{LightPink}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
