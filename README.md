@@ -6,7 +6,7 @@
 
 ㅤㅤ<img width="800" height="7" alt="tumblr_05ac64d1ed438a2e3ca073780f9563b5_18a88103_2048" src="https://github.com/user-attachments/assets/04ed5339-b5e8-42cf-b83d-5559ae5018f9" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/VsSGYTqd/pwhatt.gif" style="" title="">![](https://komarev.com/ghpvc/?username=syumur&label=BAKAᶻ+𝗓+𐰁&style=for-the-badge&abbreviated&color=483D8B)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/RCn03YZr/IMG_2058.gif" style="" title="">![](https://komarev.com/ghpvc/?username=syumur&label=BAKAᶻ+𝗓+𐰁&style=for-the-badge&abbreviated&color=483D8B)
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{LightPink}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
